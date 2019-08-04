@@ -9,4 +9,4 @@ The official [Github](https://github.com/vidyalankarpc) account for this group w
 To get involved, contact on vidyalankarprogrammingclub@gmail.com 
 
 
-PS :-  We are also looking for help to build the new webpage for this club, please contact on vidyalankarprogrammingclub@gmail.com
+PS :-  We are also looking for help to build the new webpage and a logo for this club, please contact on vidyalankarprogrammingclub@gmail.com
